@@ -1,1 +1,1 @@
-# Simon-Haglund
+# Simon Haglund
