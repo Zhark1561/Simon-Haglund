@@ -26,3 +26,7 @@ The next project I had a hand in was a 3D game called Gravitum where you manipul
 
 
 Thank you for coming to my TedxTalk you can now applaud thank you thank you.
+
+Email: Simon.Haglund@futuregames.nu / simon6haglund@hotmail.com
+Discord: Zhark#1561
+Twitter: @Zhark1561
